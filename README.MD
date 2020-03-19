@@ -1,2 +1,2 @@
-![12](https://github.com/ChinaArJun/PornGo/blob/master/porn-go.gif)
-# NOW
+![12](https://github.com/ChinaArJun/PornGo/blob/master/porn-go.png)
+# PornGo
